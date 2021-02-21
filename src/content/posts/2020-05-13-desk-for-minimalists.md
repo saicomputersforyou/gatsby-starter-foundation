@@ -1,53 +1,37 @@
 ---
-template: blog-post
-title: Desk for minimalists
-slug: /minimalists-desk
-date: 2020-05-13 12:46
-description: sdasd
-featuredImage: /assets/bench-accounting-nvzvopqw0gc-unsplash.jpg
+title: "Sai Computers Eseva "
+slug: Welcome To Sai Computers
+date: 2021-02-21 18:06
+description: |-
+  #saicomputers
+  #Phaltan 
+  #Eseva
+featuredImage: /assets/csc.jpeg
 ---
-Uh, is the puppy mechanical in any way? Maybe I love you so much I love you no matter who you are pretending to be. If rubbin' frozen dirt in your crotch is wrong, hey I don't wanna be right. I found what I need. And it's not friends, it's things.
+\*\* साई कॉम्प्युटर्स फलटण \*\*
 
-That's the ONLY thing about being a slave. OK, if everyone's finished being stupid. Bender, we're trying our best. Fry! Stay back! He's too powerful! I just told you! **You've killed me!** *And yet you haven't said what I told you to say!* How can any of us trust you?
+⭕ नवीन पॅनकार्ड अर्जंट 1 दिवसांत काढून मिळेल
 
-![Royal Mail](/assets/royal-mail-unsplash.jpg "Royal Mail from Unsplash")
+⭕ दुरुस्ती/करेशन पॅनकार्ड 1 दिवसांत मिळेल
 
-## It doesn't look so shiny to me.
+⭕ आधारकार्ड नंबरवरून, आधारकार्ड पावतीवरून आधारकार्ड 1 दिवसा मध्ये ऑनलाईन काढून देण्यात येईल
 
-No! I want to live! There are still too many things I don't own! It doesn't look so shiny to me. I'm just glad my fat, ugly mama isn't alive to see this day. Soon enough. I'm sure those windmills will keep them cool.
+⭕ आधारकार्ड स्मार्टकार्ड 1 तासात तयार करून मिळेल
 
-![]()
+⭕ पासपोर्ट अॅप्लिकेशन 15 मिनिटात काढून मिळेल
 
-1. Guards! Bring me the forms I need to fill out to have her taken away!
-2. Have you ever tried just turning off the TV, sitting down with your children, and hitting them?
-3. You, a bobsleder!? That I'd like to see!
+⭕ ऑनलाइन डिजिटल सतबारा कडून मिळेल
 
-### Daylight and everything.
+⭕ सरकारी भरती फॉर्म व सरकारी योजना फॉर्म अर्जंट भरून मिळतील
 
-A true inspiration for the children. Anyone who laughs is a communist! Can I use the gun? Oh, how I wish I could believe or understand that! There's only one reasonable course of action now: kill Flexo!
+नवीन जुने डेस्कटॉप / लॅपटॉप मिळतील
 
-* Fry! Stay back! He's too powerful!
-* Look, last night was a mistake.
-* Please, Don-Bot… look into your hard drive, and open your mercy file!
+\*\* साई कॉम्प्युटर्स \*\*
 
-And I'm his friend Jesus. One hundred dollars. There, now he's trapped in a book I wrote: a crummy world of plot holes and spelling errors! No! The cat shelter's on to me.
+शॉप नं. २4 , रामराजे शॉपिंग सेंटर (नवीन संकुल) शिंगणापूर रोड ,सुरभि हॉटेल पाठीमागे ,गडसोली मैदान , फलटण – 415523
 
-Fry! Quit doing the right thing, you jerk! I'm sure those windmills will keep them cool. I'm Santa Claus! Leela's gonna kill me. Then we'll go with that data file!
+👇-- (ऑफिस वेळ) --👇
 
-That's right, baby. I ain't your loverboy Flexo, the guy you love so much. You even love anyone pretending to be him! Bite my shiny metal ass. Tell them I hate them. Yeah, and if you were the pope they'd be all, "Straighten your pope hat." And "Put on your good vestments."
+सकाळी 09 ते संध्याकाळी 7 वाजेपर्यंत
 
-That's a popular name today. Little "e", big "B"? Hey, whatcha watching? A sexy mistake. A true inspiration for the children. Shut up and get to the point!
-
-Ven ve voke up, ve had zese wodies. Oh, all right, I am. But if anything happens to me, tell them I died robbing some old man. So, how 'bout them Knicks? Oh Leela! You're the only person I could turn to; you're the only person who ever loved me.
-
-Shut up and get to the point! Take me to your leader! I can explain. It's very valuable. You guys realize you live in a sewer, right?
-
-Robot 1-X, save my friends! And Zoidberg! Oh Leela! You're the only person I could turn to; you're the only person who ever loved me. I guess because my parents keep telling me to be more ladylike. As though!
-
-I daresay that Fry has discovered the smelliest object in the known universe! Oh right. I forgot about the battle. Oh dear! She's stuck in an infinite loop, and he's an idiot! Well, that's love for you.
-
-You wouldn't. Ask anyway! Is today's hectic lifestyle making you tense and impatient? Ven ve voke up, ve had zese wodies. Doomsday device? Ah, now the ball's in Farnsworth's court!
-
-Fatal. Maybe I love you so much I love you no matter who you are pretending to be. Really?! You can see how I lived before I met you. Alright, let's mafia things up a bit. Joey, burn down the ship. Clamps, burn down the crew.
-
-Enough about your promiscuous mother, Hermes! We have bigger problems. Bender, being God isn't easy. If you do too much, people get dependent on you, and if you do nothing, they lose hope. You have to use a light touch. Like a safecracker, or a pickpocket.
+संपर्क- धनाजी शिवाजी पवार 9561078305 /8010390902
